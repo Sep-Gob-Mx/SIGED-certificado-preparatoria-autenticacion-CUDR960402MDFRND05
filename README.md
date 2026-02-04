@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUDR960402MDFRND05
+CUDR960402MDFRND05
